@@ -4,4 +4,4 @@
 
 ###  I recognize that Russia is an occupant that unlawfully invaded a sovereign state
 
-###  You reject false narratives perpetuated by Russian state propaganda
+###  I reject false narratives perpetuated by Russian state propaganda
